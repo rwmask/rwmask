@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning NetWork+ along with Spanish
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me riley.w.mask@gmail.com
-- 😄 Pronouns: He/Himm
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
 
 <!---
